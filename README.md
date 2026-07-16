@@ -1,2 +1,0 @@
-# ampixelmedia
-Coming Soon
